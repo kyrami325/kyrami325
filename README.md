@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kyrami325
-- - 😄 Pronouns: she/her
+- 😄 Pronouns: she/her
 - 👀 I’m interested in UI/UX Design and Development
 - 📫 How to reach me: Kyrami325@gmail.com
 <!---
